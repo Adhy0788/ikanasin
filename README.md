@@ -1,0 +1,2 @@
+# ikanasin
+Ikan kok diasinin
